@@ -1,3 +1,3 @@
-# H.O.P.E.
+# ZERO HUNGER
 Help other people eat
  
